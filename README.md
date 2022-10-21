@@ -1,1 +1,0 @@
-# Gen35HASEGAWA.github.io
